@@ -1,0 +1,2 @@
+# PRKATIKUMKOMNUM
+laporan praktikum Komnum
